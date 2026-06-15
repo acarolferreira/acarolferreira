@@ -9,7 +9,7 @@
 - 😊 Fun fact: Sou viciada em café, então se entrar no tema... já saiba que a conversa vai ser longa. ☕
 
   
-<img width="1536" height="1024" alt="WhatsApp Image 2026-06-15 at 00 44 53" src="https://github.com/user-attachments/assets/f47678c3-cdcf-4e5b-bf80-029b8b75c0e5" />
+<img width="1280" height="777" alt="WhatsApp Image 2026-06-15 at 00 53 06" src="https://github.com/user-attachments/assets/c6fabbb7-539a-4449-b257-67c1894a3c2c" />
 
 
 <!--
